@@ -1,0 +1,2 @@
+# WOOWANGTHON_TEAM_05_AI
+2026 AI 우왕톤 05팀 우짤래 - AI
